@@ -1,2 +1,1 @@
-# trannhatquyhust
 About myself

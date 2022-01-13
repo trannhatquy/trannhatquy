@@ -4,4 +4,4 @@
 * 🧍‍♂️ Love playing football, reading, sometimes playing League of Legend 
 * 😍 I am into studing AI with mainly focusing in NLP
 * 🌍 US - where I can meet a very important person of my life
-* 📫 Reach me at https://www.linkedin.com/in/tran-nhat-quy-16b25720b/ - Phone Number: 0334663383 - Outlook: quy.tn194148@sis.hust.edu.vn
+* 📫  Phone Number: 0334663383 - Outlook: quy.tn194148@sis.hust.edu.vn
